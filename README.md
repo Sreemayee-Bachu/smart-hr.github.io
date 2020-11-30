@@ -1,1 +1,0 @@
-# smart-hr.github.io
